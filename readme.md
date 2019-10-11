@@ -7,7 +7,7 @@ telegram 聊天工具交流更安全，下载安装使用请看tg使用攻略：
 
 # 最新苹果安卓下载地址2019年10月11日更新
 ### 观众请下载：[hs1v.xyz](http://hs1v.xyz )
-### 主播开播请下载：[nb8j.xyz](http://nb8j.xyz )<br>
+### 主播开播请下载：[nb8j.xyz](http://nb8j.xyz )<br> （观众下载无法正常使用）
 备用下载地址如下<br>
 0ns3.xyz<br>
 my53.xyz<br>
